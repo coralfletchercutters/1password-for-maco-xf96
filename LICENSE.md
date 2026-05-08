@@ -1,4 +1,4 @@
-
+Get the ultimate 1Password for macOS addon with vip 1Password for macOS Addon | network-monitoring + secure-backup. Featuring network-monitoring and secure-backup, it's the best
 
 
 
